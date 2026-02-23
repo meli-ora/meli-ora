@@ -1,5 +1,4 @@
 ## Hey peeps...
----
 
 as you all know, I'm *ameliorating* ✨✨
 hopefully I can exist better, I'm not too great at that yet
